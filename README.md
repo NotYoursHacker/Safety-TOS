@@ -1,2 +1,3 @@
 # Safety-TOS
-TOS FOR SAFETY ++
+https://discord.com/terms
+
